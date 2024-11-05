@@ -1,4 +1,6 @@
 # 082214297187-Snack-box-spesial-untuk-acara-di-Kertamulya-yang-meriah
+082214297187, Snack box spesial untuk acara di Kertamulya yang meriah, Snack box murah dan lezat untuk pertemuan di Padalarang
+
 ingat nggak sih, dulu waktu kecil sering diajak nenek bikin kue? Nah, rasa kue-kue homemade itu sekarang bisa kamu nikmati lagi di Snack Box Teh Rita. Setiap gigitannya membawa kita kembali ke kenangan masa kecil yang manis.
 
 Manjakan lidah Anda dengan kelezatan autentik dalam setiap gigitan. Snack Box Teh Rita menyajikan perpaduan sempurna antara tradisi dan inovasi, menghadirkan pengalaman kuliner yang tak terlupakan. Setiap kue adalah hasil karya tangan terampil, dibuat dengan bahan-bahan pilihan dan resep turun-temurun.
